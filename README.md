@@ -1,0 +1,1 @@
+C:\Users\linkh\OneDrive\Desktop\course\python\data science and ml\gittut
